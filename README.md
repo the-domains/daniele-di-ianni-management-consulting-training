@@ -1,0 +1,1 @@
+# daniele-di-ianni-management-consulting-training
